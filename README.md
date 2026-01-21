@@ -1,2 +1,2 @@
 # G6B
-le proget sur 3DS!!
+le proget mig sur 3DS!!
